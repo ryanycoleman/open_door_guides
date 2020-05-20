@@ -140,7 +140,7 @@ In some cases, your manager may be traveling or on PTO and unable to meet with y
 
 ## When to go to human resources first
 
-If you don't feel you can go to your manager or another manager for whatever reason, HR can help. HR partners are trained to deal with open-door issues and can help connect you with the right resources to resolve your problem. Evelyn Carrion is the designated HR partner for open-door conversations, but you can reach out to whomever_ _in HR you feel most comfortable with. Their job is to listen to your concern and either give you the  encouragement you need to take the matter to your manager, or help you find someone who can help you resolve the issue.
+If you don't feel you can go to your manager or another manager for whatever reason, HR can help. HR partners are trained to deal with open-door issues and can help connect you with the right resources to resolve your problem. You might start with your designated HR partner for open-door conversations, but you can reach out to whomever_ _in HR you feel most comfortable with. Their job is to listen to your concern and either give you the  encouragement you need to take the matter to your manager, or help you find someone who can help you resolve the issue.
 
 You can set up an appointment to talk with someone in HR at any time. You can and should feel free to mark the meeting 'Private.' If you'd rather not have the appointment on your calendar, you can send an email and make arrangements that way. Meetings with HR partners are considered confidential, and you can expect the same things in that meeting that you would with a manager, including:
 
